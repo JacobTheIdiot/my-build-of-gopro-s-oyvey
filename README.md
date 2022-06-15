@@ -1,2 +1,2 @@
 # my-build-of-gopro-s-oyvey
-uhhhhhhhhhhhhhhhhhhhhhh
+its for my friend lol
